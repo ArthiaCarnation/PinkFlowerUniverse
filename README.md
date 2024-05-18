@@ -20,4 +20,4 @@
         <p align="center"> 
 ❀  ┊ SERENADELOVE ┊ PROMISE EVERLASTING ┊ TIKTOK ┊ WATTPAD ┊ GUESTBOOK ┊ ❀
             <p align="center"> 
-⋆ ★
+⋆ 
