@@ -18,6 +18,6 @@
      <p align="center"> 
     <a href="https://en.pronouns.page/@TheStrawberryCHI" target="[M]"<strong>𝗣𝗥𝗢𝗡𝗢𝗨𝗡𝗖𝗘</strong></a>
         <p align="center"> 
-❀  ┊   <a href="https://rentry.co/SerenadeLove"target="[M]"<strong>𝗦𝗘𝗥𝗘𝗡𝗔𝗗𝗘𝗟𝗢𝗩𝗘</strong></a>┊ <a href="https://github.com/PromiseEverlasting" target="[M]"<strong>𝗣𝗥𝗢𝗠𝗜𝗦𝗘 𝗘𝗩𝗘𝗥𝗟𝗔𝗦𝗧𝗜𝗡𝗚</strong> ┊ <a href="https://www.tiktok.com/@venti_islife"target="[M]"<strong>𝗧𝗜𝗞𝗧𝗢𝗞</strong></a>┊ <a href="https://www.wattpad.com/user/chikomikolome"target="[M]"<strong>𝗢𝗨𝗥 𝗣𝗥𝗢𝗠𝗜𝗦𝗘</strong></a>┊ <a href="https://rentry.co/evilarthia"target="[M]"<strong>𝗘𝗩𝗜𝗟𝗔𝗥𝗧𝗛𝗜𝗔</strong></a> ┊ ❀
+❀  ┊   <a href="https://rentry.co/SerenadeLove"target="[M]"<strong>𝗦𝗘𝗥𝗘𝗡𝗔𝗗𝗘𝗟𝗢𝗩𝗘</strong></a>┊ <a href="https://github.com/PromiseEverlasting" target="[M]"<strong>𝗣𝗥𝗢𝗠𝗜𝗦𝗘 𝗘𝗩𝗘𝗥𝗟𝗔𝗦𝗧𝗜𝗡𝗚</strong></a> ┊ <a href="https://www.tiktok.com/@venti_islife"target="[M]"<strong>𝗧𝗜𝗞𝗧𝗢𝗞</strong></a>┊ <a href="https://www.wattpad.com/user/chikomikolome"target="[M]"<strong>𝗢𝗨𝗥 𝗣𝗥𝗢𝗠𝗜𝗦𝗘</strong></a>┊ <a href="https://rentry.co/evilarthia"target="[M]"<strong>𝗘𝗩𝗜𝗟𝗔𝗥𝗧𝗛𝗜𝗔</strong></a> ┊ ❀
             <p align="center"> 
 ⋆ 
