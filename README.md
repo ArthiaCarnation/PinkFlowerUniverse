@@ -5,16 +5,15 @@
   <img width="500" src="https://github.com/PinkFlowerUniverse/PinkFlowerUniverse/assets/170179384/7ecb2f81-b56d-4735-b7c9-d13dd72e7db3" alt = ![638b62c83101721dd383eee179095f1f]>
 </p>
  <p align="center">
-   𝙙𝙤 𝙮𝙤𝙪 𝙩𝙝𝙞𝙣𝙠 𝙬𝙚'𝙧𝙚 𝙢𝙤𝙩𝙝𝙚𝙧 𝙖𝙣𝙙 𝙨𝙤𝙣 𝙞𝙣 𝙚𝙫𝙚𝙧𝙮 𝙪𝙣𝙞𝙫𝙚𝙧𝙨𝙚?
+ ・✦ʚ♡ɞ✦ ・
  <p align="center">
-  <img width="170" src= https://github.com/PinkFlowerUniverse/PinkFlowerUniverse/assets/170179384/3606e44a-434a-466e-8da4-fbc61c9aac2d) alt = ![pony-town-Falling Petals-sit-hearts-blush-8x]>
-   <img width="140" src=https://github.com/PinkFlowerUniverse/PinkFlowerUniverse/assets/170179384/d9c087ca-f2c2-434a-adda-d2e0398ad4af alt=![pony-town-THIS ISNT A GAME--sit-blinking-8x]>
- <p align="center"> 
- ARTHIA / SEVEN
+𝐈'𝐥𝐥 𝐠𝐢𝐯𝐞 𝐲𝐨𝐮 𝐚𝐥𝐥 𝐦𝐲 𝐥𝐢𝐟𝐞, 𝐦𝐲 𝐬𝐞𝐚𝐬𝐨𝐧𝐬
+ <p align="center">
+  <img width="170" src="https://github.com/PinkFlowerUniverse/PinkFlowerUniverse/assets/170179384/a3ff0b07-ca34-4732-aa0a-813aa5ce2860" alt = ![pony-town-whats the used of feeling blue-sit-hearts-blush-8x]>
+    </p>
   <p align="center"> 
 ★ 
    <p align="center"> 
-     CHII 
      <p align="center"> 
        PRONOUNCE 
         <p align="center"> 
