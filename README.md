@@ -26,7 +26,7 @@
   <img width="500" src="https://github.com/PinkFlowerUniverse/PinkFlowerUniverse/assets/170179384/98a9a5e9-e647-4f0c-bfe1-4baa781a4fc3" alt = ![24-May-31-02-02-15-13]>
 </p>
 <p align="center">
-<img width="300" src="https://github.com/PinkFlowerUniverse/PinkFlowerUniverse/assets/170179384/4a1a8879-09b8-41af-89ac-bae992d0406f" alt =!![1000905995]>
+<img width="300" src="https://github.com/PinkFlowerUniverse/PinkFlowerUniverse/assets/170179384/065dcdeb-e97d-4083-bcb9-15739d0f2d40" alt =![1000906106]>
 <p align="center">
 3d model / Art by me!!
 </p>
